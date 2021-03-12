@@ -1,2 +1,0 @@
-# bablm.github.io
-Spieleseite
